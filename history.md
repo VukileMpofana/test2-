@@ -1,0 +1,3 @@
+
+**What makes you think you’ll succeed as a coder**
+I know that’ll make it as a coder because my mind is finally ready to actually learn how to code. I’m a tenacious person in general so it’s an advantage when it comes to learning something with a steep learning curve. I have put my mind to learning code and to improve my knowledge of stock and financial markets. It’s not even a matter of having what it takes, I actually know what I want and there’s nothing that will stop me from getting .If it were to happen that I don’t get accepted for Umuzi learnership, I’ll carry on learning python until I can afford to pay for a certified course or comeback to Umuzi when they’re recruiting again
